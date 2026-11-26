@@ -30,6 +30,7 @@ For professional inquiries, collaborations and development opportunities:
 1717interactive@gmail.com
 
 For our discord server:
+
 https://discord.gg/DDNxQ3RdS4
 
 ---
